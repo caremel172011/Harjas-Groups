@@ -1,1 +1,0 @@
-# Harjas-Groups
